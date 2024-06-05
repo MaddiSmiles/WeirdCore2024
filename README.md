@@ -1,1 +1,0 @@
-# WeirdCore2024
